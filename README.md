@@ -1,0 +1,1 @@
+I am from Samarqand. I live in Ishtixon region . I am living Qizil Qishloq village at the moment. I  learned English in my school and I learn the 'DART' programme'. I am sixteen years old.
